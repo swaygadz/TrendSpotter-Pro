@@ -1,0 +1,1 @@
+# TrendSpotter-Pro
